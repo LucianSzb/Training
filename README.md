@@ -1,3 +1,0 @@
-# Training
-tot modificat
-
